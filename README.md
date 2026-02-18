@@ -91,4 +91,4 @@ Pevnost s lávou. Boss: 🔥 Ignis Rex (8 HP). Čas: 200s. Obtížnost: ★★�
 
 ---
 
-Autor: Lukáš · Vytvořeno s AI · © 2025
+Autor: Lukáš · Vytvořeno s AI · © 2026
